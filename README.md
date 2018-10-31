@@ -1,2 +1,2 @@
-# NaomiMae.github.io
+# NJohnson.github.io
 Bio page
